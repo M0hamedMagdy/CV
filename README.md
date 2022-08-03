@@ -1,4 +1,4 @@
 
-![](./Mohamed Magdy - CV.jpg)
+![](./Mohamed_Magdy_CV.jpg)
 
 
