@@ -1,2 +1,4 @@
-# CV
-My Resume 
+
+![](./Mohamed Magdy - CV.jpg)
+
+
