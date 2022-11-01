@@ -1,5 +1,5 @@
 
-![](./Mohamed_Magdy_CV.jpg)
+![](./mohamedMagdyCV.jpg)
 
 
 
